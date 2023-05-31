@@ -79,6 +79,7 @@ After creating an account, you can start by your **colleagues**:
 
 - [@RealityBending_](https://twitter.com/RealityBending_)
 - [@Dom_Makowski](https://twitter.com/Dom_Makowski)
+- [@AuzMoore](https://twitter.com/AuzzzMoore)
 - **ADD YOURSELF**
 
 We have compiled a list of interesting accounts, covering all sorts of different topics (but always somewhat relevant to what we do). You can follow this **list** and **pin it** to quickly access it from your timeline (don't forget to make suggestions to update this list). You can then start following yourself the people that you like.
